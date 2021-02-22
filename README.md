@@ -1,0 +1,1 @@
+# Zakkuri100PercentGpl
